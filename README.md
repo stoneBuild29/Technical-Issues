@@ -1,0 +1,7 @@
+# Technical Issues
+
+![bdb6089670c6499bbbaeb7b865edc542.jpg](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/bdb6089670c6499bbbaeb7b865edc542.jpg)
+
+![img](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/d514-72598274bc418fa15cff12ced3e2f4b6.jpg)
+
+Mao Zedong once pointed out with dialectical materialism's epistemology: "Our understanding of the objective world follows a process. Initially, we do not understand or only have partial understanding. Through repeated practice, we achieve results, experience victories, face setbacks, and compare success with failure. Only then is it possible to gradually develop into a complete or relatively complete understanding." In other words, in the process of understanding and transforming the objective world, smooth sailing is impossible; difficulties, setbacks, and even failures are inevitable. One must have the determination to "move forward fearlessly despite hardships" and "struggle firmly and unshakably against any difficulty." We must not avoid or shrink back but confront and analyze the problem, then find ways to solve it. Accumulating experience and mastering the laws of the objective world is a form of learning. We should avoid "touching a nail, rubbing our head, and then forgetting about it." We must earnestly learn from mistakes and failures, deepen our understanding of objective laws, and allow errors to guide us toward the right path—this is also a form of learning.
